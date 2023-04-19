@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Gary W West
-- 👀 I’m interested in Life, family, my sons, their wives, and My and grandchildren !
-- 🌱 I’m currently learning how to be a grandfather (YeYe).
+- 👀 I’m interested in Life, family, my sons, their wives, and my grandchildren !
+- 🌱 I’m currently learning how to be a grandfather (YeYe or Bopa).
 
 
 <!---
